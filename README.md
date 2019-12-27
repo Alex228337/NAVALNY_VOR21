@@ -1,0 +1,1 @@
+# NAVALNY_VOR21
